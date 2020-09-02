@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-**Discord**: NotMarek#8634
+**Discord**: NotMarek#1337
